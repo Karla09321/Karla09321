@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 🦾 Soy nueva en el mundo de la programación, pero estoy emocionada por aprender y crecer en este campo.
 - 🎭​🖼​🎨 Disfruto mucho pintar y el teatro; creo que el arte es una forma poderosa de expresión.
 - 💬 Me gusta aprender inglés y mejorar mis habilidades de comunicación.
-- 📫 Puedes contactarme a través de [mi correo electrónico](Socutepret@gmail.com) o con mi numero (3042575600).
+- 📫 Puedes contactarme a través de mi correo [Socutepret@gmail.com] o con mi numero (3042575600).
 - 😄 Pronombres: Karli / Yaderlin
 - ⚡ Fun fact: ¡Una vez pinté un mural en mi escuela y fue una experiencia increíble!
 
